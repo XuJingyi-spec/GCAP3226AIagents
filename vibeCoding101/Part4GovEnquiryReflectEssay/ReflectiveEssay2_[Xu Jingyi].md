@@ -1,0 +1,7 @@
+# Reflective Essay: Government Enquiries and AI Assistance in GCAP 3226
+
+Drafting the government enquiry for our Team 5 Green @ Community project was a revealing process. I struggled to articulate our data needs to the Environmental Protection Department, often worrying that my requests were either too broad or too technical. The challenge was to be both respectful and precise, especially when referencing the Code on Access to Information. What surprised me most was how much time it took to refine the enquiry—each revision brought new clarity, and feedback from my team helped me overcome uncertainty and improve the letter’s professionalism.
+
+AI assistance played a pivotal role in shaping my work. The AI helped me organize my thoughts, structure the enquiry, and identify missing details in our request. It also taught me the importance of anticipating the recipient’s perspective and making my intentions transparent. This experience reinforced the value of professional communication and highlighted how data access is central to participatory policy analysis. For our team, reliable data from the government was essential for evaluating Green @ Community initiatives and developing evidence-based recommendations. The AI’s support made our collaborative process more efficient and focused.
+
+My key takeaway is that effective policy research depends on clear government communication and smart use of AI tools. I plan to apply these lessons to future projects and always seek constructive feedback.
